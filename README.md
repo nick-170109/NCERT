@@ -1,4 +1,4 @@
-# NCERT HISTORY CLASS 9
+# HISTORY CLASS 9
 
 Chapter 1 The French Revolution
 
